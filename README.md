@@ -3,7 +3,7 @@
 <table border="0" align="center">
  <tr align="center">
   <th>
-  <a href="https://rentry.co/SHELL-SHOCK">
+  <a href="https://rentry.co/CHEVROLET-IMPALA">
    rentry</a>ㅤㅤ
     <a href="https://guns.lol/IMPULSIVENESSS">
       guns.lol</a>ㅤㅤ
