@@ -11,5 +11,3 @@
     <a href="https://zombielovejuice.atabook.org/" title="send me a message.">
       新Book</a></p>
 
-<p align="center"><sub>the callout situation was solved, so please do not send harassment to both parties if you know them.</sub></a><br>
-
