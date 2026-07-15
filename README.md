@@ -8,6 +8,6 @@
    rentry</a>ㅤㅤ
     <a href="https://guns.lol/purpleducktape" title="discord user and such.">
       guns.lol</a>ㅤㅤ
-    <a href="https://zombielovejuice.atabook.org/" title="send me a message.">
-      新Book</a></p>
+    <a href="https://alterspring.org/@livingdeadman" title="send me a message.">
+      guestbook</a></p>
 
