@@ -8,8 +8,6 @@
    fluffle</a>ㅤㅤ
     <a href="https://guns.lol/purpleducktape" title="discord user and such.">
       guns.lol</a>ㅤㅤ
- <a href="https://tetratto.com/@impala67" />
-  tetratto</a>ㅤㅤ
     <a href="https://zombielovejuice.atabook.org/" title="send me a message.">
       ata</a></p>
 
