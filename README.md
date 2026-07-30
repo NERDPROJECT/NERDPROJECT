@@ -8,6 +8,6 @@
    fluffle</a>ㅤㅤ
     <a href="https://guns.lol/purpleducktape" title="discord user and such.">
       guns.lol</a>ㅤㅤ
-    <a href="https://tetratto.com/@impala" title="send me a message.">
+    <a href="https://tetratto.com/@umbrella" title="send me a message.">
       guestbook</a></p>
 
