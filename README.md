@@ -4,7 +4,7 @@
 <p align="center"> <i>$\color{#47392f}　JEN　$</i> $\color{#961d12}{\textsf{ ⌖ }}$ $\color{#3d4f38}　ALBERT　$
 </br><br>
 <p align="center"><img width="25%" src="https://github.com/user-attachments/assets/02776c4a-522a-4152-bdb0-4c0e01129ff6" /><br><br>
- <a href="https://fluffle.cc/chevroletimpala" title="you can find my pronouns.cc here.">
+ <a href="https://fluffle.cc/commandblock" title="you can find my pronouns.cc here.">
    fluffle</a>ㅤㅤ
     <a href="https://guns.lol/purpleducktape" title="discord user and such.">
       guns.lol</a>ㅤㅤ
