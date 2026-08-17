@@ -8,7 +8,7 @@
    fluffle</a>ㅤㅤ
     <a href="https://guns.lol/purpleducktape" title="discord user and such.">
       guns.lol</a>ㅤㅤ
-    <a href="https://tetratto.com/@commandblock" title="send me a message.">
-      guestbook</a></p>
+    <a href="https://zombielovejuice.atabook.org/" title="send me a message.">
+      Ata</a></p>
       <p align="right"><sub>my <a href="https://github.com/thefleshcurtains">team</a>-<a href="https://github.com/therealcastiel">free</a>-<a href="https://github.com/NERDPROJECT">will</a> trio <a href="https://github.com/pt-friendships"><3</a></sub>
 
